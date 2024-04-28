@@ -1,3 +1,3 @@
-# jessdiz.github.io
-## susodiz.github.io
+# JessDiz: jessdiz.github.io
+## SusoDiz: susodiz.github.io
 ### "🗿"
